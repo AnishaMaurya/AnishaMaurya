@@ -8,7 +8,7 @@ I transform raw data into **meaningful insights and business decisions** using a
 
 ## 🌐 Connect with Me
 
-* 💼 LinkedIn: https://linkedin.com/in/anisha-maurya
+* 💼 LinkedIn: https://www.linkedin.com/in/anisha-maurya-361230216/
 * 📧 Email: [anishamaurya634@gmail.com](mailto:anishamaurya634@gmail.com)
 * 💻 GitHub: https://github.com/AnishaMaurya
 
